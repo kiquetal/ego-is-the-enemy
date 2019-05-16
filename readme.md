@@ -88,3 +88,24 @@
     to be done and lessons to be learned, in all that
     is around us.
     
+##### THe danger of early pride
+
+    A proud man is always looking down on things
+    and people, and , of course,as long as you
+    are looking down, you cannot see something
+    that is above you
+    CS LEWIS
+    
+##### Work,work,work
+
+    The best plan is only good intentions
+    unless it degenerates into work.
+    
+    You can't build a reputation on what you're going 
+    to do.
+    "The hard thing isn't setting a big, hairym audacious 
+    goal. The hard thing is laying people off when you miss the
+    big goal..The hard thing isn't dreaming big. The hard
+    thing is waking up in the middle of the night in a cold
+    sweat when the dream turns into a nightmare.
+    
