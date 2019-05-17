@@ -88,6 +88,7 @@
     to be done and lessons to be learned, in all that
     is around us.
     
+    
 ##### THe danger of early pride
 
     A proud man is always looking down on things
